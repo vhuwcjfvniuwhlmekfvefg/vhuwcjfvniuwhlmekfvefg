@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vhuwcjfvniuwhlmekfvefg
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in ...your mum
+- 🌱 I’m currently learning ...sex
+- 💞️ I’m looking to collaborate on ..your dad.
 - 📫 How to reach me ... plus....your....gay
 
 <!---
